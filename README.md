@@ -1,3 +1,4 @@
 # demo_repo
 Demo repo gyakorlásnak
-# github-ról írtam
+# github-ról írtam tegnap(vagy ma)
+donno
