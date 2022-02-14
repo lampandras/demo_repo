@@ -10,4 +10,3 @@ szevasz
 valtoztatasssssssssvvmnbmbnmbmnbmbn
 vs1
 lol
->>>>>>> 58566bef4a49c578d03aa5be2bbf9cd6dac60ec5
