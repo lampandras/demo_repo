@@ -15,3 +15,6 @@ kgk
 szia dávid
 # let me beleir
 # ngguu
+# kgk
+kgk kgk kgk kgk kgk
+# kgk kgk kgk kgk 
