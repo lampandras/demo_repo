@@ -25,5 +25,8 @@ kgk kgk kgk kgk kgk
 # my name is karen im fat and im blonde 🤳👱‍♀️👋💅
 # áj wantt to spíík tu jór menedzsör
 # sziaa dévid
-# cso
-
+# virgin as a 56 year old 
+only children 
+# 2 dogs
+my dad has gone for milk 
+# and hasn't come back
