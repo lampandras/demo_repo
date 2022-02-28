@@ -4,3 +4,8 @@ Demo repo gyakorlásnak
 jól összekutyultam a README-t
 szevasz
 xd
+# szia dávid 
+# szia neked is
+ja ezt is én írtam 
+# mivan 
+# xD
