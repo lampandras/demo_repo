@@ -20,3 +20,5 @@ kgk kgk kgk kgk kgk
 # kgk kgk kgk kgk 
 UwU
 ❤❤❤❤❤😍😍😍😍😍💋💋💋💋💋
+# imagine being loved 😢😢😢
+# imagine not loving children as an adult 😍😍😍
