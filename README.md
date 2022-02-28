@@ -12,3 +12,4 @@ ja ezt is én írtam
 szia rafi 
 # emlékszel a sztorimra
 kgk
+szia dávid
