@@ -11,3 +11,4 @@ ja ezt is én írtam
 # xD
 szia rafi 
 # emlékszel a sztorimra
+kgk
