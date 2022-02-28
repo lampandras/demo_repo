@@ -25,5 +25,5 @@ kgk kgk kgk kgk kgk
 # my name is karen im fat and im blonde 🤳👱‍♀️👋💅
 # áj wantt to spíík tu jór menedzsör
 # sziaa dévid
-#cso
+# cso
 
