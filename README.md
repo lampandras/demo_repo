@@ -9,3 +9,5 @@ xd
 ja ezt is én írtam 
 # mivan 
 # xD
+szia rafi 
+# emlékszel a sztorimra
